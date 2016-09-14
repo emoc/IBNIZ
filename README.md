@@ -3,6 +3,9 @@ AV code for IBNIZ
 
 :+1:
 
+http://pelulamu.net/ibniz/
+https://wiki.labomedia.org/index.php/IBNIZ
+
 ```
 \ 2015
 
