@@ -7,6 +7,30 @@ http://pelulamu.net/ibniz/
 https://wiki.labomedia.org/index.php/IBNIZ
 
 ```
+\ 2020
+\ rythmes, à modifier live
+
+\ ^x07rsx 1/1
+\ 04Xd2.01&*L
+\ FEXE33FF@L
+\ dEB*Fsr^*0.11 
+\ d11rx3r1.F01&/qs da \ hardcore 
+\ 42%dsassq \ kick
+
+\ melodies, pas touche
+
+\ 0EXd1.005*L
+\ [Br0.44| d4*<]w* \ laisser le temps
+\ d4ld9l^d07.F1%ras
+
+\ accompagnements
+
+\ 1{dFr&.C*}2{dCl^}3X2VL 4X1VL
+\ EEE33@-s 5Xd*Lq 0.F*
+\ 3FF%dsassssq
+
+
+
 \ 2015
 
 \ 5rssssssss M d2r1101.0100&*ssq , 0.4* \binary jet
