@@ -7,7 +7,7 @@ http://pelulamu.net/ibniz/
 https://wiki.labomedia.org/index.php/IBNIZ
 
 ```
-\ 2020
+\ 2020 bytefolk
 \ rythmes, à modifier live
 
 \ ^x07rsx 1/1
